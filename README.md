@@ -1,0 +1,2 @@
+Baingan bharta recipe with step by step photos. One more favorite Punjabi recipe at home. This baingan bharta recipe is a simple and easy to prepare recipe without the use of many spices.
+We simply love this baingan ka bharta due to its simplicity and taste. I have learned this authentic Punjabi recipe from my mom-in-law who makes excellent Punjabi food. If you do not know what is baingan bharta. Let me tell you.
